@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @kristenmreynolds
-- 👀 I’m interested in video games, travel, and painting
+- 👀 I’m interested in video games, travel, and legos
 - 🌱 I’m currently learning Spanish! 
 - 💞️ I’m looking to collaborate on enablement initiatives
-- 📫 How to reach me via Slack 
+- 📫 How to reach me via Slack @kristenmreynolds
 - 😄 Pronouns: she/ her 
 - ⚡ Fun fact: I am a published poet 
 
